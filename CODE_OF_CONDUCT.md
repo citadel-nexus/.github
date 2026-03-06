@@ -1,0 +1,1 @@
+Contributor Covenant v2.1 — be excellent to each other.
